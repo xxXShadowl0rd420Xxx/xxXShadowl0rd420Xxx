@@ -9,7 +9,35 @@ $\color{#49496C}{\textsf{MY SHADES:}}$ㅤ[𖹭](https://github.com/VlSCARTE)ㅤ[
 ㅤ<br>
   <sup>
   [byi & dni (.cc)](https://pronouns.cc/@7-trials)ㅤㅤㅤ[crrd](https://7-trials.carrd.co)ㅤㅤㅤ[prns.page](https://en.pronouns.page/@j777ckpot) <br>
-  [新book](https://7-trials.atabook.org)ㅤㅤㅤ[straw.page](https://7-trials.straw.page)ㅤㅤㅤ[alt](https://github.com/ZOMBIELOVEJUICE) [accounts](https://github.com/7-TRIALS)<br>
+  [新book](https://7-trials.atabook.org)ㅤㅤㅤ[straw.page](https://7-trials.straw.page)ㅤㅤㅤ[main account](https://github.com/j777ckpot)<br>
   <sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>ㅤ[twt](https://x.com/j777ckpot)ㅤㅤㅤ[tumblr](https://www.tumblr.com/j777ckpot)ㅤㅤㅤ[commissions](https://777commissions.carrd.co)<br>
   </sup>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat+Brush&weight=300&size=15&duration=3500&pause=1000&color=49496C&vCenter=true&multiline=true&repeat=false&width=600&height=270&lines=this+can't+be...;why+isn't+it+working%3F+aren't+you+fully+attuned+with+the+shadows%3F;no%2C+that's+not+right.;if+you+can't+become+a+shadow%2C+how+can+we+truly+be+together%3F;%E3%85%A4%C2%BB%E3%85%A4skips%2C+it's+fine.;for+you+it+is!;you+have+so+many+other+friends+to+talk+to!;i+only+have+you.;why+do+you+have+to+go+in+the+morning%3F;why+can't+you+just+stay+and+be+with+me%3F;...)<br>
 ㅤ<br>
