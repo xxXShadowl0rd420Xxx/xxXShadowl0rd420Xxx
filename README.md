@@ -1,6 +1,4 @@
 ㅤ<br>
-![](https://komarev.com/ghpvc/?username=xxXShadowl0rd420Xxx&color=49496C&label=ㅤㅤㅤshadowsㅤㅤㅤ)<br>
-ㅤ<br>
 $\color{#49496C}{\textsf{SKIPS,ㅤEVAN}}$ㅤ <sup>$\color{#3e3752}{\textsf{OR}}$</sup>ㅤ $\color{#49496C}{\textsf{HABIT}}$ㅤ<sup>$\color{#3e3752}{\textsf{+ OTHER}}$</sup> <br>
 <sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>⠀8teenㅤhe/him <br>
 
@@ -11,6 +9,26 @@ $\color{#49496C}{\textsf{MY SHADES:}}$ㅤ[𖹭](https://github.com/VlSCARTE)ㅤ[
 ㅤ<br>
 <sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup> $\color{#49496C}{\textsf{THIS IS AN ALT ACCOUNT!}}$ <br>
 if you're here to follow/sign something, [head over to my main](https://github.com/j777ckpot). <br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
 ㅤ<br>
 ㅤ<br>
 ㅤ<br>
