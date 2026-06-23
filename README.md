@@ -64,5 +64,5 @@ $\color{#49496C}{\textsf{MY SHADES:}}$ㅤ[𖹭](https://github.com/VlSCARTE)ㅤ[
 ㅤ<br>
 ㅤ<br>
 ㅤ<br>
-![Typing SVG](https://readme-typing-svg.demolab.com?font=STIX+Two+Text&weight=300&size=15&duration=3500&pause=1000&color=49496C&vCenter=true&multiline=true&repeat=false&width=600&height=240&lines=this+can't+be...;why+isn't+it+working%3F+aren't+you+fully+attuned+with+the+shadows%3F;no%2C+that's+not+right.;if+you+can't+become+a+shadow%2C+how+can+we+truly+be+together%3F;%E3%85%A4%C2%BB%E3%85%A4skips%2C+it's+fine.;for+you+it+is!;you+have+so+many+other+friends+to+talk+to!;i+only+have+you.;why+do+you+have+to+go+in+the+morning%3F;why+can't+you+just+stay+and+be+with+me%3F;...)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=STIX+Two+Text&weight=300&size=15&duration=3500&pause=1000&color=49496C&vCenter=true&multiline=true&repeat=false&width=600&height=240&lines=this+can't+be...;why+isn't+it+working%3F+aren't+you+fully+attuned+with+the+shadows%3F;no%2C+that's+not+right.;if+you+can't+become+a+shadow%2C+how+can+we+truly+be+together%3F;%E3%85%A4%C2%BB%E3%85%A4skips%2C+it's+fine.;for+you+it+is!;you+have+so+many+other+friends+to+talk+to!;i+only+have+you.;why+do+you+have+to+go+in+the+morning%3F;why+can't+you+just+stay+and+be+with+me%3F;...) <br>
 ㅤ<br>
