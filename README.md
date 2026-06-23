@@ -1,49 +1,20 @@
 ㅤ<br>
-$\color{#49496C}{\textsf{SKIPS,ㅤEVAN}}$ㅤ <sup>$\color{#3e3752}{\textsf{OR}}$</sup>ㅤ $\color{#49496C}{\textsf{HABIT}}$ㅤ<sup>$\color{#3e3752}{\textsf{+ OTHER}}$</sup> <br>
-<sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>⠀8teenㅤhe/him <br>
+ㅤ<br>
+<img src="https://files.catbox.moe/4jcqxe.gif" width="330" height="~" align="left" hspace="0" alt="the hanged man"/>
 
-$\color{#49496C}{\textsf{MY SHADES:}}$ㅤ[𖹭](https://github.com/VlSCARTE)ㅤ[𖹭](https://github.com/RUST-010)ㅤ[𖹭](https://github.com/EverymanHYBRIDJ)<br>
+$\color{#49496C}{\textsf{SKIPS,ㅤEVANㅤ}}
+$<sup>$\color{#3e3752}{\textsf{OR}}
+$</sup>$\color{#49496C}{\textsf{ㅤHABITㅤ}}$
+<sup>$\color{#3e3752}{\textsf{+ OTHER}}$</sup> <br>
+<sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>⠀8teenㅤhe/himㅤㅤ
+[<img src="https://files.catbox.moe/4kxcjb.png" width="15" height="~"/>](https://github.com/VlSCARTE)ㅤ
+[<img src="https://files.catbox.moe/4kxcjb.png" width="15" height="~"/>](https://github.com/RUST-010)ㅤ
+[<img src="https://files.catbox.moe/4kxcjb.png" width="15" height="~"/>](https://github.com/EverymanHYBRIDJ) <br>
+
+![Typing SVG](https://readme-typing-svg.demolab.com?font=STIX+Two+Text&weight=300&size=15&duration=2500&pause=500&color=3e3752&multiline=true&repeat=false&width=550&height=95&lines=i+know+you+miss+my+lips%2C+compactly+pressed+against+your+hips;i+know+you'll+miss+the+places+that+i+placed+my+fingertips;i+know+you'll+never+find+another+lover%2C+love;who+will+love+you+like+i+did)
+
+$\color{#49496C}{\textsf{THIS IS AN ALT ACCOUNT,ㅤ}}$
+[follow my main](https://github.com/j777ckpot) <br>
+<sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>ㅤ[新book](https://7-trials.atabook.org)ㅤ[straw.page](https://7-trials.straw.page) <br>
 ㅤ<br>
-<img src="https://files.catbox.moe/55fvwi.png" width="100" height="~" alt="the hanged man"/>ㅤ
-![Typing SVG](https://readme-typing-svg.demolab.com?font=STIX+Two+Text&weight=300&size=15&duration=2500&pause=500&color=3e3752&multiline=true&repeat=false&width=550&height=95&lines=i+know+you+miss+my+lips%2C+compactly+pressed+against+your+hips;i+know+you'll+miss+the+places+that+i+placed+my+fingertips;i+know+you'll+never+find+another+lover%2C+love;who+will+love+you+like+i+did) <br>
-ㅤ<br>
-<sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup> $\color{#49496C}{\textsf{THIS IS AN ALT ACCOUNT}}$ <br>
-if you're here to sign/follow something, [head over to my main](https://github.com/j777ckpot). <br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-ㅤ<br>
-![Typing SVG](https://readme-typing-svg.demolab.com?font=STIX+Two+Text&weight=300&size=15&duration=3500&pause=1000&color=3e3752&vCenter=true&multiline=true&repeat=false&width=600&height=240&lines=this+can't+be...;why+isn't+it+working%3F+aren't+you+fully+attuned+with+the+shadows%3F;no%2C+that's+not+right.;if+you+can't+become+a+shadow%2C+how+can+we+truly+be+together%3F;%E3%85%A4%C2%BB%E3%85%A4skips%2C+it's+fine.;for+you+it+is!;you+have+so+many+other+friends+to+talk+to!;i+only+have+you.;why+do+you+have+to+go+in+the+morning%3F;why+can't+you+just+stay+and+be+with+me%3F;...) <br>
 ㅤ<br>
