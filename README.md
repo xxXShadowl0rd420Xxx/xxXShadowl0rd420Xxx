@@ -1,5 +1,5 @@
 ㅤ<br>
-<img src="https://files.catbox.moe/4jcqxe.gif" width="265" height="~" align="left" hspace="0" alt="the hanged man"/>
+<img src="https://files.catbox.moe/4jcqxe.gif" width="260" height="~" align="left" hspace="0" alt="the hanged man"/>
 
 $\color{#49496C}{\textsf{SKIPS,ㅤEVANㅤ}}
 $<sup>$\color{#3e3752}{\textsf{OR}}
