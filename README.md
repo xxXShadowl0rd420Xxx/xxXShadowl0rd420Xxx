@@ -1,6 +1,5 @@
 ㅤ<br>
-ㅤ<br>
-<img src="https://files.catbox.moe/4jcqxe.gif" width="300" height="~" align="left" hspace="0" alt="the hanged man"/>
+<img src="https://files.catbox.moe/4jcqxe.gif" width="270" height="~" align="left" hspace="0" alt="the hanged man"/>
 
 $\color{#49496C}{\textsf{SKIPS,ㅤEVANㅤ}}
 $<sup>$\color{#3e3752}{\textsf{OR}}
@@ -18,5 +17,4 @@ $</sup>$\color{#49496C}{\textsf{ㅤHABITㅤ}}$
 $\color{#49496C}{\textsf{THIS IS AN ALT ACCOUNT,ㅤ}}$
 [follow my main](https://github.com/j777ckpot) <br>
 <sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>ㅤ[新book](https://7-trials.atabook.org)ㅤ[straw.page](https://7-trials.straw.page) <br>
-ㅤ<br>
 ㅤ<br>
