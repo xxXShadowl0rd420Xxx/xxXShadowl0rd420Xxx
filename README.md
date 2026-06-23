@@ -1,4 +1,6 @@
 ㅤ<br>
+![](https://komarev.com/ghpvc/?username=xxXShadowl0rd420Xxx&color=49496C&label=ㅤㅤㅤshadowsㅤㅤㅤ)<br>
+ㅤ<br>
 $\color{#49496C}{\textsf{SKIPS,ㅤEVAN}}$ㅤ <sup>$\color{#3e3752}{\textsf{OR}}$</sup>ㅤ $\color{#49496C}{\textsf{HABIT}}$ㅤ<sup>$\color{#3e3752}{\textsf{+ OTHER}}$</sup> <br>
 <sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>⠀8teenㅤhe/him <br>
 
