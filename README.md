@@ -8,7 +8,8 @@ $</sup>$\color{#49496C}{\textsf{ㅤHABITㅤ}}$
 <sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>⠀8teenㅤhe/himㅤㅤ
 [<img src="https://files.catbox.moe/4kxcjb.png" width="15" height="~"/>](https://github.com/VlSCARTE)ㅤ
 [<img src="https://files.catbox.moe/4kxcjb.png" width="15" height="~"/>](https://github.com/RUST-010)ㅤ
-[<img src="https://files.catbox.moe/4kxcjb.png" width="15" height="~"/>](https://github.com/EverymanHYBRIDJ)
+[<img src="https://files.catbox.moe/4kxcjb.png" width="15" height="~"/>](https://github.com/EverymanHYBRIDJ)ㅤㅤ
+![](https://komarev.com/ghpvc/?username=xxXShadowl0rd420Xxx&color=000000&label=ㅤㅤㅤshadowsㅤㅤㅤ)
 
 
 ㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=STIX+Two+Text&weight=300&size=12&duration=2500&pause=500&color=3e3752&multiline=true&repeat=false&width=400&height=75&lines=i+know+you+miss+my+lips%2C+compactly+pressed+against+your+hips;i+know+you'll+miss+the+places+that+i+placed+my+fingertips;i+know+you'll+never+find+another+lover%2C+love;who+will+love+you+like+i+did)
