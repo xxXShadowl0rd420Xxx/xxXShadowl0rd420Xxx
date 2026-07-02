@@ -17,5 +17,5 @@ $</sup>$\color{#49496C}{\textsf{ㅤHABITㅤ}}$
 
 $\color{#49496C}{\textsf{THIS IS AN ALT ACCOUNT,ㅤ}}$
 [follow my main](https://github.com/j777ckpot) <br>
-<sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>ㅤ[byi & dni (.cc)](https://pronouns.cc/@7-trials)ㅤ[新book](https://darkness-online.atabook.org)ㅤ[straw.page](https://7-trials.straw.page) <br>
+<sup>$\color{#3e3752}{\textsf{⎯⎯}}$</sup>ㅤ[byi & dni (.cc)](https://pronouns.cc/@7-trials)ㅤ[alt 新book](https://darkness-online.atabook.org)ㅤ[main 新book](https://7-trials.atabook.org)ㅤ[straw.page](https://7-trials.straw.page) <br>
 ㅤ<br>
